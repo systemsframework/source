@@ -4,7 +4,7 @@ Systems Framework
 
 One journey. Shared Meaning. A life-affirming framework that builds a common language in a fractured world.
 
-How can science, religion, and philosophy describe the same universe through different lenses? Systems Framework offers a shared grammar to connect them. Take the leap of logic to find out.
+How can the lessons of science, religion, and philosophy allow us to live a life of purpose, work together, and reason together even if we disagree on the truth and meaning of life? Systems Framework offers a shared grammar to connect human ethical thought through the premise that goodness and meaning is possible. Take the leap of logic to find out.
 
 Select a perspective:
 [ The Human Journey ] • [ The Path of Christ ] • [ Rational Systems Logic ]
